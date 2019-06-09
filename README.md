@@ -1,3 +1,9 @@
+This is a transcript of the talk **["Handling OCD"](https://www.youtube.com/watch?v=OX_KcE8psww), by Dr. Reid Wilson.**
+
+*The author of the transcript owns no right over the original content.*
+
+--- 
+
 [4:10]
 
 So, I am going to talk pretty directly and simply to you, and I hope that you understand I realize how serious OCD is. I realize how long people suffer from this. I realize it&#39;s not a simple disorder to overcome but I&#39;m going to talk pretty simply to you because I think there is a model of strategy that can help any of us begin to win this challenge that we have in front of us with OCD. So just bear with me and and open your mind for for the next 35 minutes, or 45 minutes, and you know you can throw all this away when I&#39;m done, but if you can just consider that I might have something new that you haven&#39;t thought about I&#39;d appreciate you just given that that second.
