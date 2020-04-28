@@ -1,6 +1,6 @@
 This is a transcript of the talk **["Handling OCD"](https://www.youtube.com/watch?v=OX_KcE8psww), by Dr. Reid Wilson.**
 
-*The author of the transcript owns no right over the original content.*
+*I, the author of the transcript, own no right over the original content.*
 
 --- 
 
